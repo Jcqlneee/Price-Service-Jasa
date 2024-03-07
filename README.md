@@ -16,7 +16,7 @@
 
 BUY? TAG / OR DM https://discord.com/users/531769853602693120
 
-# vip **VIP** 
+# **VIP** 
 # ⚡ **FAST PTHT [3 MIN]**
 # ⚠️ **ONLY FULL FARM NO DESIGN**
 # **READY BORONGAN** ✌️
